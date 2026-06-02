@@ -1,4 +1,4 @@
-# 
+# Leve Quicken predefinições para Mac OS | Nativo Quicken predefinições para PC Windows. Com aprovações de vários níveis e processamento em lote — otimizado para máximo desempenho em cada plataforma.
 
 
 
